@@ -11,7 +11,7 @@ $\color{#EC1524}{\textsf{frank}}$ <br>
 <sub>$\color{#FFFFE5}{\textsf{undead since 2008}}$</sub> <br>
 <sup>$\color{#FFFFE5}{\textsf{he/him}}$</sup>
 <sup>$\color{#EC1524}{\textsf{ㅤ+ㅤ}}$</sup>
-<sup>$\color{#FFFFE5}{\textsf{masculine terms}}$</sup> <br>
+<sup>$\color{#FFFFE5}{\textsf{masc terms}}$</sup> <br>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[prns.cc](https://pronouns.cc/@viscarte)ㅤ[新book](https://leathermouth.atabook.org/)<br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[< gee 3](https://github.com/gee-way) <br>
