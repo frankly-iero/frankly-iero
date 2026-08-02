@@ -13,7 +13,7 @@ $\color{#EC1524}{\textsf{frank}}$ <br>
 <sup>$\color{#EC1524}{\textsf{ㅤ+ㅤ}}$</sup>
 <sup>$\color{#FFFFE5}{\textsf{masculine terms}}$</sup> <br>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ[pronouns.cc](https://pronouns.cc/@viscarte)ㅤ[新book](https://leathermouth.atabook.org/)<br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ[pronouns.cc](https://pronouns.cc/@viscarte)ㅤ[新book](https://leathermouth.atabook.org/)<br>
 ㅤ<br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[< gee 3](https://github.com/gee-way) <br>
 ㅤ<br>
