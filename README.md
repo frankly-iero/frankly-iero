@@ -2,7 +2,7 @@
 <p align="center">
 <img src="https://api.visitorbadge.io/api/visitors?path=frankly-iero&label=bodies&labelColor=000000&countColor=000000&style=flat"> <br>
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ<img src="https://files.catbox.moe/ylnesm.png" width="150" height="~" align="~" hspace="0" alt="frankie"/> <br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ<img src="https://files.catbox.moe/ylnesm.png" width="200" height="~" align="~" hspace="0" alt="frankie"/> <br>
 
 <p align="center">
 $\color{#EC1524}{\textsf{steph, damsel}}$
