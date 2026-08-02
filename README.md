@@ -1,16 +1,21 @@
-## Hi there 👋
+ㅤ<br>
+<p align="center">
+<img src="https://api.visitorbadge.io/api/visitors?path=frankly-iero&label=bodies&labelColor=000000&countColor=000000&style=flat"> <br>
+  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ<img src="https://files.catbox.moe/ylnesm.png" width="150" height="~" align="~" hspace="0" alt="frankie"/> <br>
 
-<!--
-**frankly-iero/frankly-iero** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+$\color{#EC1524}{\textsf{steph, damsel}}$
+<sup>$\color{#FFFFE5}{\textsf{ㅤorㅤ}}$</sup>
+$\color{#EC1524}{\textsf{frank}}$ <br>
+<sub>$\color{#FFFFE5}{\textsf{undead since 2008}}$</sub> <br>
+<sup>$\color{#FFFFE5}{\textsf{he/him}}$</sup>
+<sup>$\color{#EC1524}{\textsf{ㅤ+ㅤ}}$</sup>
+<sup>$\color{#FFFFE5}{\textsf{masculine terms}}$</sup> <br>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[byi & dni (.cc)](https://pronouns.cc/@aheartwellending)ㅤ[crrd](https://7-trials.carrd.co)ㅤ[prns.page](https://en.pronouns.page/@j777ckpot)<br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[新book](https://three-cheers.atabook.org)ㅤ[straw.page](https://a-heartwell-ending.straw.page) <br>
+ㅤ<br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[< gee 3](https://github.com/gee-way) <br>
+ㅤ<br>
+ㅤ<br>
