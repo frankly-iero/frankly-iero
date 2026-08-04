@@ -14,6 +14,7 @@ $\color{#EC1524}{\textsf{frank}}$ <br>
 <sup>$\color{#FFFFE5}{\textsf{masc terms}}$</sup> <br>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[prns.cc](https://pronouns.cc/@viscarte)ㅤ[新book](https://leathermouth.atabook.org/)<br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ[< gee 3](https://github.com/gee-way) <br>
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ[< G + F 3](https://my-frerard-romance.straw.page) <br>
 ㅤ<br>
 ㅤ<br>
